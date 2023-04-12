@@ -1,5 +1,5 @@
-## flexii >> they/them
+## flexii >> any pronouns
 
-[twitter](https://www.twitter.com/flexiiwiki)
+[twitter](https://www.twitter.com/flexiimusic)
 
-[website](http://flexii.wiki)
+[website](http://flexii.app)
