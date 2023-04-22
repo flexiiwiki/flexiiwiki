@@ -1,4 +1,4 @@
-## flexii >> any pronouns
+## flexii >> they/them
 
 [twitter](https://www.twitter.com/flexiimusic)
 
