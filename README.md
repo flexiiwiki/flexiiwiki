@@ -1,5 +1,5 @@
 ## flexii >> they/them
 
-[twitter](https://www.twitter.com/flexiimusic)
+[mastodon](https://wetdry.world/@flexii)
 
 [website](http://flexii.app)
